@@ -8,5 +8,3 @@ Hama Saadwn
 Twana Nariman
 
 Rezhwan Sdeq
-
-http://cst.uhd.edu.iq
